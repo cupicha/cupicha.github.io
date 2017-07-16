@@ -1,1 +1,1 @@
-# cupicha.github.io
+# www.cupicha.pl
